@@ -21,7 +21,7 @@
 
 ### 📫 How to Reach Me
 
-- [LinkedIn](https://www.linkedin.com/in/vimal-mathew-b-6a2566231)
+- [LinkedIn](https://www.linkedin.com/in/abishak-d-891517216/)
 - [Email](mailto:dabishak7@gmail.com)
 
 ### 🌟 Projects & Contributions
